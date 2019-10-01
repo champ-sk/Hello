@@ -1,1 +1,1 @@
-# I want to become a pro coder
+# I am also interested in learning Artificial intelligence
